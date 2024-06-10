@@ -1,4 +1,10 @@
-## Hi there 👋
+## hola me llamo Maria Antonia Caseres
+* tengo 17 años😃
+* voy al colegio Divina De La Misericordia😔 
+* me gusta dormir, la ceramica,la musica,etc.😜
+* tengo 6 hermanos😯
+* Mis expectativas este año son terminar el colegio con mis amigas y con todas las materias aprobada.🥰
+ ![texto](https://www.okchicas.com/wp-content/uploads/2017/01/Gato-se-toma-selfies-13.jpg)
 
 <!--
 **mariacaseres/mariacaseres** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
