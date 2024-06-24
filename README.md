@@ -4,6 +4,7 @@
 * me gusta dormir, la ceramica,la musica,etc.😜
 * tengo 6 hermanos😯
 * Mis expectativas este año son terminar el colegio con mis amigas y con todas las materias aprobada.🥰
+* https://pin.it/6j8L8vhYV 
  ![texto](https://www.okchicas.com/wp-content/uploads/2017/01/Gato-se-toma-selfies-13.jpg)
 
 <!--
